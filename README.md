@@ -1,0 +1,2 @@
+# DalixJarvis
+Endi jarvis telefonda
